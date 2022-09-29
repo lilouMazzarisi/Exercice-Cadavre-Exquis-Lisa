@@ -7,4 +7,7 @@ That being said, even with each other helps, some were quicker, some slower.
 However, there is no shame in this. We are a group, and there is no first or last place.
 The place is beautiful but it gets quite hot. 
 The coaches are nice and helpfull. 
-It's the same for the other people working at BeCode !
+It's the same for the other people working at BeCode!
+It's difficult sometimes because we're not working on the same OS.
+But at least we have coffee !
+Coffe is live. Love coffee, love live. Love Be code!
