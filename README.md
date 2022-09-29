@@ -5,3 +5,7 @@ This exercise seamed quite simple for some, while it was a real challenge for ot
 Even if it was challenging for some, the idea was to help each others. 
 That being said, even with each other helps, some were quicker, some slower.
 However, there is no shame in this. We are a group, and there is no first or last place.
+The place is beautiful but it gets quite hot.
+The coaches are nice and helpfull.
+It's the same for the other people working at BeCode !
+
